@@ -1,5 +1,6 @@
 - 👋 Hi, I’m Kylian
 - 🎓 I’m a student in electronics and programming
+- 🇨🇵 🥖 Oui oui baguette !
 - 🛩️ I'm a plane enthusiast
 - 📫 How to reach me : kyliancomte@hotmail.fr
 - ⚡ Fun fact : i love doing research abt the everyday's life tech
